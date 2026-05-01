@@ -1,1 +1,1 @@
-https://mostofasarker.github.io/zakia/
+https://mostofasarker.github.io/Zakia/
